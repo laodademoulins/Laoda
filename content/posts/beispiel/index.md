@@ -1,7 +1,7 @@
 +++
 title = "Beispiel"
 date = "2023-04-06"
-draft = true
+draft = false
 pinned = false
 image = "lizard.jpg"
 +++
