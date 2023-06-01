@@ -22,11 +22,7 @@ Das blaue Licht ist dementsprechend für unser psychisches Wohlbefinden mitveran
 
 Zum Thema negative Nebenerscheinungen bei hoher Bildschirmzeit fragen wir direkt bei Dr. med. Regula Salzgeber in der Augenpraxis IRIS in Bern nach. Regula Salzgeber studierte an der Universität Bern. Ihre Doktorarbeit handelt über Veränderungen des Sehnervs bei Schlafapnoe-Syndrom. Sie absolvierte ihre Ausbildung zur Augenärztin an der Augenklinik des Inselspitals Bern sowie an der Augenklinik des Universitätsspitals Zürich. Die Facharztprüfung absolvierte sie im Jahr 2013. Bis 2016 war sie Mitarbeiterin als Fachärztin im Augenzentrum Zytglogge. Im Jahr 2017 nahm sie ihre selbstständige Praxistätigkeit bei den Augenärzten am Bollwerk – heute IRIS-Augenpraxis – auf. Ausserdem war sie bis 2018 an der Berner Augenklinik am Lindenhofspital in Teilzeit als Fachärztin/Oberärztin tätig. Sie fokussiert sich vor allem auf die allgemeine Augenheilkunde und die Kinderaugenheilkunde. Ihre Ausbildung und praktische Erfahrung lassen auf ein grosses Fachwissen schliessen. Wir können davon ausgehen, dass Frau Salzgeber für unsere Fragen über Blaulicht die richtige Ansprechperson ist.
 
-
-
-![](https://th.bing.com/th/id/OIP.Dv3W1M46I9_E-3wW8q5djQHaHa?w=168&h=180&c=7&r=0&o=5&dpr=1.5&pid=1.7)
-
-
+![](https://th.bing.com/th/id/OIP.Dv3W1M46I9_E-3wW8q5djQHaHa?w=168&h=180&c=7&r=0&o=5&dpr=1.5&pid=1.7 "Interviewpartnerin, Regula Salzgeber")
 
 Laut Frau Salzgebers Erkenntnissen und Erfahrungen mit Patienten entzünden sich an der Augenoberfläche die Bindehautzellen und Hornhautzellen, wodurch die Augen trocken und gereizt werden.
 
@@ -44,11 +40,7 @@ Chinesische Kinder verbringen bereits in einem jungen Alter sehr viel Zeit mit d
 
 Zudem haben Wissenschaftler festgestellt, dass durch das fehlende Sonnenlicht den Kindern Dopamin fehlt. Studien deuten darauf hin, dass der Botenstoff Dopamin das Längenwachstum des Augapfels bremst. Schüttet der Körper zu wenig Dopamin aus, wächst der Augapfel. Wenn der Augapfel grösser wird, verschiebt sich der Brennpunkt vor die Netzhaut und es führt zur Kurzsichtigkeit. Bei uns in den westlichen Ländern leiden nur 30 Prozent der Bevölkerung an Myopie, jedoch wächst dieser Anteil stetig, denn unsere Lebensweise wird laufend stärker von der Digitalisierung beeinflusst. Dies führt zur folgenden These: **Die stetig steigende Anzahl von jungen Brillenträgern korreliert und hält Schritt mit dem wachsenden Bildschirmkonsum.**
 
-
-
-![](https://th.bing.com/th/id/OIP.L-CNRWP_HjRH1LgPxLBLUAHaD5?w=265&h=180&c=7&r=0&o=5&dpr=1.5&pid=1.7)
-
-
+![](https://th.bing.com/th/id/OIP.L-CNRWP_HjRH1LgPxLBLUAHaD5?w=265&h=180&c=7&r=0&o=5&dpr=1.5&pid=1.7 "Bildschirm in der Nacht")
 
 **Was können wir dagegen tun?**
 
