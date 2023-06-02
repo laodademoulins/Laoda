@@ -3,7 +3,7 @@ title = "Blaues Licht: Zerstört der Bildschirm unseren Schlafrhythmus und die S
 date = "2023-05-31"
 draft = false
 pinned = false
-tags = ["DeutschReportage"]
+tags = ["Deutsch", "Reportage"]
 image = "teaser-blaulicht-brillen.jpg"
 +++
 **Wir sind daran gewöhnt, dass das «Blaue Licht» in der Natur vorkommt. Die Sonne scheint, wir sind fit und den ganzen Tag voller Tatendrang unterwegs. Mittlerweile begegnet uns das «Blaue Licht» auch über Handys, Computer und sonstigen Bildschirmen. Mitten in der Nacht springt es uns aus dem Display an und wir finden keinen Schlaf. Unser Schlafrhythmus ist gestört. Das hat Auswirkungen auf unsere mentale und physische Gesundheit.**
